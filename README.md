@@ -1,1 +1,1 @@
-Stuff I've made: https://nottnottloop.github.io/
+https://nottnottloop.github.io/
